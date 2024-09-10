@@ -7,6 +7,8 @@ https://github.com/user-attachments/assets/2fcbee38-a11a-476b-a4f6-ce2fb0555d6c
 
 NOTE: The music is not inside the program
 
+<hr>
+
 Am I the only one who finds this a bit philosophical and relaxing?
 
 It's "organized" chaos
